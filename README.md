@@ -17,3 +17,5 @@ Some games cheat
 ## Sometimes updated
 
 ## If you need, you can contact me.
+## contact me：E-mail(On my home page) or open a lssues
+
