@@ -15,7 +15,3 @@ Some games cheat
 ![](https://github.com/ZZZ-Monster/Private-GameCheat-APEX-Paladins-TF2-BF1-BF5/blob/main/%E5%9B%BE%E7%89%87cheat_picture/BF5.png)
 
 ## Sometimes updated
-
-## If you need, you can contact me.
-## contact me：E-mail(On my home page) or open a lssues
-
